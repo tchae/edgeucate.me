@@ -1,0 +1,1 @@
+building something cool. simple web-app with potential for a new "sector" of education and learning based on serendipity. it's the way i like to learn. hopefully others will feel the same.
